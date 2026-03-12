@@ -1,5 +1,12 @@
 # TVBroadcastingPortfolio
 
+## Members 
+
+### Preston Sheppard: Audio
+### Henry Hart: Director
+### Lucas Wu: Camera Operator/Editor
+### Ayden James: Teleprompter
+
 <details>
   <summary>Intro Sequence</summary>
 
