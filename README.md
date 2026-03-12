@@ -17,8 +17,9 @@
   
 **3/10/26 Preston Walking around the track, using two clips, one of Preston in a greenscreen**
 
-  [View](https://drive.google.com/file/d/1j0Aw4WNRa5PLCXpRC0xVUBMevUUV4H3X/view)
-See uncompressed intro on [Google Drive](https://drive.google.com/file/d/1j0Aw4WNRa5PLCXpRC0xVUBMevUUV4H3X/view)
+[Google Drive](https://drive.google.com/file/d/1j0Aw4WNRa5PLCXpRC0xVUBMevUUV4H3X/view)
+[Watch](https://drive.google.com/file/d/1j0Aw4WNRa5PLCXpRC0xVUBMevUUV4H3X/view)
+
 
   <details>
   <summary>Walking Sequence</summary>
